@@ -10,7 +10,7 @@ _Creado para Prácticar Ejercicios de Lógica de Programación._
 
 ## Web Site Link :globe_with_meridians:
 
-[Post Original Linkedln](http://www.linkedin.com/in/paulabadt) _http://www.linkedin.com/in/paulabadt_
+[Post Original Linkedln](https://www.linkedin.com/feed/update/urn:li:activity:6944762344895918081/) _https://www.linkedin.com/feed/update/urn:li:activity:6944762344895918081/_
 
 ## Ejercicios de Lógica 🚀
 
